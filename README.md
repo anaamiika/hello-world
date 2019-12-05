@@ -2,5 +2,5 @@
 
 Hey!
 
-I'm Anamika. I have no idea what I'm doing at the moment. :)
-Bye.
+I'm Anamika. I sing. I love rock music. 
+:)
